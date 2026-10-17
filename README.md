@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster 3 Sejauh Ini 
 [kakak koordinator yang baik dalam mengkoordinasi dan teman teman yang hebat] 
+
+## Harapan Kuliah 
+[lulus 3.5 tahun] 
